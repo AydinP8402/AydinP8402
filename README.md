@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things and new programming languages , exercising, work with a group etc...
 - 🌱 I’m currently learning some programming languages like html, css, js, nodejs, bootstrap, c# and recently python , And I'm learning English and recently German
 - 💞️ I’m looking to collaborate with companies, related projects and learning.
-- 📫 How to reach me ...
+- 📫 How to reach me : My telegram is @AydinP9669 And my Email is aydin.pirouz8402@gamil.com
 - 😄 Pronouns: he/him/his
 - ⚡ Soft skills: Always learning, Work with a group, Work ethics, Problem solving ability, Motivated, Compatibility and Flexibility
 
