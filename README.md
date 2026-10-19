@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AydinP8402
 - 👀 I’m interested in learning new things and new programming languages , exercising, work with a group etc...
-- 🌱 I’m currently learning some languages such as html, css, js, nodejs, bootstrap, c# and recently python,Some Ai's abilities, improving at using WordPress features And also I'm learning English and recently somehow German
+- 🌱 I’m currently learning some languages such as html, css, js, nodejs, bootstrap, c# and recently python,Some Ai's abilities, improving at using WordPress features And also I'm learning English and recently somehow German,
 Also I have a few experience at network passive...
 
 - I’m looking to collaborate with companies, related projects and learning.
