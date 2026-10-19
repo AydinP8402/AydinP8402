@@ -5,7 +5,7 @@ Also I have a few experience at network passive...
 
 - I’m looking to collaborate with companies, related projects and learning.
 
-- 📫 How to reach me : My telegram is @AydinP9669 And my Email is aydin.pirouz8402@gamil.com
+- 📫 How to reach me : My telegram is @Aydin9669 And my Email is aydin.pirouz8402@gamil.com
 - Pronouns: he/him/his
 - ⚡ Soft skills: Always learning, Work with a group, Work ethics, Problem solving ability, Motivated, Compatibility and Flexibility.
 
